@@ -1,2 +1,2 @@
 # hello-amy
-hello, amy my daughter.
+hello,girl, Amy is my daughter.
